@@ -1,0 +1,1 @@
+# Egy-atlagos-barat-boritek-
